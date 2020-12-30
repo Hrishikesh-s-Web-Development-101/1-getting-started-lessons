@@ -1,1 +1,0 @@
-# 1-getting-started-lessons
